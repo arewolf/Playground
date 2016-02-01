@@ -1,3 +1,5 @@
 # Playground
 Testing Playground
-Russ is bad
+Russ is bad ass awesome great like ninja-santa clause 
+
+
